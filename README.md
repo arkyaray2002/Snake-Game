@@ -1,6 +1,6 @@
 Legendary-Snake-Game
 
-<img align="centre" width="400" src="https://giphy.com/gifs/news-kids-struggles-zPdwt79PXjMEo">
+<img align="centre" width="400" src="[https://giphy.com/gifs/news-kids-struggles-zPdwt79PXjMEo](https://media.tenor.com/4_0tXX8tWGIAAAAS/snakes-game.gif)">
 
 Hey, can you remind your GOLDEN Childhood Days ? Let's help you. The favourite game of all ages is now here - The Legendary SNAKE GAME 🐍
 
